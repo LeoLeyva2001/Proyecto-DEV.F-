@@ -3,4 +3,4 @@
 ### Leonardo Leyva Bolaños
 ### Pieter Alexander van der Werff Vargas
 ### Frida Sofía Grandi
-### Sandra Lizeth
+### Sandra Lizeth Faz Coronado
